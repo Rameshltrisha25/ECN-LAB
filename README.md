@@ -28,7 +28,13 @@
 
 **CIRCUIT DIAGRAM:**
 
+![WhatsApp Image 2025-12-18 at 9 44 34 AM](https://github.com/user-attachments/assets/9d08aeac-d766-46cf-afbd-05f955408490)
 
+
+![WhatsApp Image 2025-12-18 at 9 35 23 AM](https://github.com/user-attachments/assets/b5592c1c-453f-4302-b4a2-d7dbc25e5945)
+
+
+![WhatsApp Image 2025-12-18 at 9 44 34 AM (2)](https://github.com/user-attachments/assets/b54f3eea-904d-4324-9ab8-beee1facf290)
 
 
 
